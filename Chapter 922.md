@@ -88,8 +88,8 @@ The countless lightning bolts turned scarlet in color, and like a sea of ferocio
 
 All the Chosen on the boat, including Wang Baole, had a drastic change in expression. Even the usually expressionless paper human cutout who rowed the boat twitched, and the oar in its hand couldn’t help but pause for a moment.
 
- - [1] - Jin (斤; [tɕin˥]) is used here to describe the weight of the water: 1 jin is around 500 grams. For simplicity's sake, I converted it into US gallons. (Let’s just assume this water is 1 g/mL…)
+ - [1] - Jin (斤) is used here to describe the weight of the water: 1 jin is around 500 grams. For simplicity's sake, I converted it into US gallons. (Let’s just assume this water is 1 g/mL…)
 
- - [2] - Zhang (丈; [ʈʂaŋ˥˨]) is used here to describe length! 1 zhang is around 3.3 meters, which I’ve converted to feet to align with US gallons in the previous footnote. 3.3 meters * 3 zhang = around 30 feet!
+ - [2] - Zhang (丈) is used here to describe length! 1 zhang is around 3.3 meters, which I’ve converted to feet to align with US gallons in the previous footnote. 3.3 meters * 3 zhang = around 30 feet!
 
- - [3] - 排山倒海 [pʰaɪ˨˥ ʂan˥ taʊ˨˩˨ xaɪ˨˩˨] - Basically a Chinese idiom to describe overwhelming power. Kind of weird when probably any Spirit Immortal cultivator can easily do that but it probably sounds more epic in Chinese.
+ - [3] - 排山倒海 - Basically a Chinese idiom to describe overwhelming power. Kind of weird when probably any Spirit Immortal cultivator can easily do that but it probably sounds more epic in Chinese.
