@@ -1,5 +1,6 @@
 # Chapter 925 - The Starfall Realm
 
+
 The Starfall Realm was one of the most mysterious places in the Never-Ending Dao Domain!
 
 Three conditions had to be met in order to enter this place. The first was that it had to be open. The second was that one's cultivation couldn't exceed the Planet realm. The third was that one needed to have a qualification mark!
@@ -68,7 +69,7 @@ This thought slightly reassured Wang Baole. He raised his head and looked at the
 
 Almost everyone's bodies began to tremble the moment they rose into the air. It was clear that they had been affected by something unknown, and there were even a few who fell headfirst and almost landed in the black paper sea. Fortunately, at the critical moment, they unleashed their cultivation and barely managed to withstand the danger. However, their pale faces and the fear in their eyes showed how difficult it was to fly in this sky.
 
-“As expected, there's something wrong with the sky!” Wang Baole narrowed his eyes. In his eyes, the Chosen who had left their boats were like the eight immortals crossing the sea, each displaying their divine powers.<sup class="footnote"><a href="#fn-1" id="fnref-1">1</a></sup>
+“As expected, there's something wrong with the sky!” Wang Baole narrowed his eyes. In his eyes, the Chosen who had left their boats were like the eight immortals crossing the sea, each displaying their divine powers.<sup class="footnote"><a href="#fn-1" id="fnref-1">[1]</a></sup>
 
 Some of their bodies glowed with a bright light, charging through the sea using its protection. Others took out Dharmic Treasures, using them to protect themselves and speed ahead.
 
@@ -84,7 +85,7 @@ There was also a woman who came from another boat. She was beautiful and had a c
 
 As for the two men, one was fierce, while the other was scholarly. The fierce-looking man wore a black robe, and as he stepped forward, his right hand formed a series of hand seals in mid-air. Instantly, a long sword materialized out of thin air. Sword Qi surged around him like a long river, and as his aura rose to the skies, an astonishing murderous aura erupted from his body. Wherever he passed, the obstructions from the sky were unable to stop him. He destroyed everything in his path, soaring through the sky!
 
-Lastly, the scholarly cultivator had the most unique way of crossing the sea. He held a bamboo slip in his hand and lowered his head as he read. He stepped onto the black sea and allowed the black Qi to surge towards him. However, it stopped thirty feet away from him<sup class="footnote"><a href="#fn-2" id="fnref-2">2</a></sup>, unable to penetrate some invisible shield. His pace was neither fast nor slow as he walked further away on the waves of paper in the black sea.
+Lastly, the scholarly cultivator had the most unique way of crossing the sea. He held a bamboo slip in his hand and lowered his head as he read. He stepped onto the black sea and allowed the black Qi to surge towards him. However, it stopped thirty feet away from him<sup class="footnote"><a href="#fn-2" id="fnref-2">[2]</a></sup>, unable to penetrate some invisible shield. His pace was neither fast nor slow as he walked further away on the waves of paper in the black sea.
 
 Seeing all that, Wang Baole was shocked by the four of them. However, he also felt somewhat indignant.
 

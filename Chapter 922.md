@@ -49,7 +49,7 @@ Wang Baole earned twelve million Red Crystals quite easily, which made him dizzy
 
 “I’m going to the Xie family’s market and buying twenty Nine Heavenly Thunder Spirits!”
 
-“I’ll buy three gallons<sup class="footnote"><a href="#fn-1" id="fnref-1">1</a></sup> of Cloud Sky River water!”
+“I’ll buy three gallons<sup class="footnote"><a href="#fn-1" id="fnref-1">[1]</a></sup> of Cloud Sky River water!”
 
 “I also want to buy that Heaven and Earth Spirit Boat that is worth several million!!”
 
@@ -59,7 +59,7 @@ At that thought, while he was excited, he suddenly felt that twelve million was 
 
 “This is…” Wang Baole’s eyes widened in an instant as the ray of light became dazzling, roaring toward the Starfall Boat.
 
-Its speed was so fast that by the time everyone noticed it, the light was already approaching. It turned into a lightning bolt with a thickness of 30 feet<sup class="footnote"><a href="#fn-2" id="fnref-2">2</a></sup>, blasting toward the spirit boat!
+Its speed was so fast that by the time everyone noticed it, the light was already approaching. It turned into a lightning bolt with a thickness of 30 feet<sup class="footnote"><a href="#fn-2" id="fnref-2">[2]</a></sup>, blasting toward the spirit boat!
 
 Immediately, a deafening noise rumbled. Although the boat was unharmed, it shocked everyone on board. Along with the other Chosen, even the masked woman opened her eyes with vigilance.
 
@@ -85,7 +85,7 @@ This made Wang Baole heave a huge sigh of relief, and his heart filled with arro
 
 It wasn’t known if his thoughts angered the lightning, but in the next moment, the starry sky brightened many folds. If one could look down at an astonishing height, one could see a sea of lightning comparable in size to that of an entire civilization be formed! 
 
-The countless lightning bolts turned scarlet in color, and like a sea of ferocious snakes, leaped toward the spirit boat from all directions, with enough power to topple mountains and overturn seas!<sup class="footnote"><a href="#fn-3" id="fnref-3">3</a></sup>
+The countless lightning bolts turned scarlet in color, and like a sea of ferocious snakes, leaped toward the spirit boat from all directions, with enough power to topple mountains and overturn seas!<sup class="footnote"><a href="#fn-3" id="fnref-3">[3]</a></sup>
 
 All the Chosen on the boat, including Wang Baole, had a drastic change in expression. Even the usually expressionless paper human cutout who rowed the boat twitched, and the oar in its hand couldn’t help but pause for a moment.
 

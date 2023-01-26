@@ -1,4 +1,4 @@
-# Chapter 926 - Celestial Dao Lightning
+# Chapter 926 - Divine Might Dao Lightning
 
 As soon as he flew up, Wang Baole immediately understood why the first batch of Chosen who soared into the sky had trembled the moment they rose into the air. Some of them had almost fallen into the black paper sea due to insufficient preparation.
 
@@ -78,4 +78,4 @@ Even Wang Baole himself was stunned for a moment. His eyes then gleamed and he s
 
 "Idiot, this Dao Son is casting a spell to cleanse the entire Black Sea and return this world to its former glory!" As he spoke, he raised his right hand and pretended to form a seal.
 
-"Celestial Dao Lightning, come!"
+"Divine Might Dao Lightning, come!"
