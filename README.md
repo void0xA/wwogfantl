@@ -4,7 +4,11 @@
 
 # Official Site:
 
-[https://wwogtl.bearblog.dev/](https://wwogtl.bearblog.dev/)
+[https://wwogfantl.bearblog.dev/](https://wwogtl.bearblog.dev/)
+
+# Reddit:
+
+https://www.reddit.com/r/wwogfantl
 
 # Discord:
 
