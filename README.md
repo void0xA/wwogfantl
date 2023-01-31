@@ -12,4 +12,4 @@ https://www.reddit.com/r/wwogfantl
 
 # Discord:
 
-https://discord.gg/atQSdygkGQ
+https://discord.gg/ergen
