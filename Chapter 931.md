@@ -1,17 +1,29 @@
 # Chapter 931 - A Good Deal!
 
 "This..." Wang Baole hesitated for a moment. He wanted to say that he dared, but the difference in Laws meant that the way for him to cultivate this technique was also completely different. Without reference and comparison, it was difficult for him to figure it out unless he personally examined the cultivation method.
+
 Therefore, the other party could very easily create fake techniques. Even if the techniques were real, if he thoughtlessly cultivated them, they might just turn his entire body into paper.
+
 Only if he could see and understand the technique with his own eyes and guarantee its authenticity would it be possible for him to try and cultivate it. However, it would still be extremely dangerous.
+
 Thinking to this point, Wang Baole shook his head and forced a smile.
+
 “You really don’t dare? This book can be considered the best cultivation technique in my entire shop. It’s called the Nine Reading Paper Secret Art! You can infuse the laws of paper into your mystical techniques, destroying all your enemies at a touch… One of my Starfall Empire’s powerhouses once went to the Outer Realm and used this technique to turn many Outer Realm cultivators into paper, wiping them out.” As the old man spoke, he raised his right hand to grab at the void. Suddenly, a piece of golden paper placed at the top of a shelf flew towards him and fell into his hand.
+
 “Although you can’t cultivate it yourself, it’s still worth buying as a collectible, right?” The old man looked at Wang Baole, obviously pleased at his depressed expression of wanting the technique but being unable to cultivate it.
+
 “Senior…” Wang Baole was about to speak, but the old man coughed and waved his right hand again.
+
 “Not that one? How about this one, it’s called the Fire Ape Curse. When one uses it, they will transform into a giant fire ape. Even an Eternal Star Realm cultivator will have a headache dealing with them!”
+
 “This technique is also extraordinary, it’s called One Thought Stellar Brilliance Art. it can transform a star into a paper star, then it can be folded evoking good fortune” The old man flaunted one technique after another, describing their power in detail. Wang Baole couldn’t help but release a sigh as he listened. He patted his storage bag and suddenly a jade slip appeared in his hand. 
+
 “Senior, this junior doesn’t know whether you can see the jade slip in my hand, but this technique is called the Heavenspan No Will Secret Art. Once it is completed, no one else’s divine will can exist where you are. Everything shall be determined by your own will, surpassing this realm and becoming supreme!” Wang Baole said lightly while holding the jade slip of a map.
+
 The old man was stunned by these words, but Wang Baole continued before he could speak.
+
 “If you’re unsatisfied, this cultivation method is called Kunpeng Swallows the Dao. Once you cultivate it to completion, you can transform into a Kunpeng and swallow everything, it can be called a supreme cultivation method!”
+
 "Not satisfied? It doesn't matter. The Xie family where I, Xie Dalu am from, is the wealthiest family in the entire Never-Ending Dao Domain. I have a lot of skills. For example, this method is called the Invincible Three Knocks. Don't look down on it due its weird name, its power is beyond imagination. Once it is cultivated, the first knock can dry up a sea, the second knock can make the earth collapse, and the third knock can even make stars fall!" Wang Baole took out three or four jade slips in one breath. These jade slips, containing a mix of maps and blanks, were placed in front of the old man with a dull expression.
 
 "Senior, do you dare to learn?" Wang Baole coughed and asked again. In fact, he realized that the old man was obviously trying to cheat him, so Wang Baole felt that he had to let the other party experience a similar feeling.
